@@ -1,6 +1,1 @@
-Paneer Makhani & Rice (₹239)
-Rajma Masala & Rice (₹189)
- Medu Vada Sambar Dip (₹109)
-Veg Puff, and Chicken Puff ($200) 
- Channa Jor Chaat (₹119)
- Samosa Pav (₹75)
+SUNDAY SPECIAL MENU
